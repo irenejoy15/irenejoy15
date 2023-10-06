@@ -1,5 +1,4 @@
 ### Hi there, I am Cefrian Yves Trinchera 👋
-<a href="test.html">TEST</a>
 <!--
 **irenejoy15/irenejoy15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
