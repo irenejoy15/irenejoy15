@@ -1,4 +1,4 @@
-### Hi there, I am Cefrian Yves Trinchera 👋
+### Hi there! 👋 I'm CEFRIAN YVES B. TRINCHERA, WORKING AT BEAUTY ELEMENTS VENTURES MANUFACTURING INC..
 <!--
 **irenejoy15/irenejoy15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
